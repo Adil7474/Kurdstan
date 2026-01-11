@@ -1,2 +1,0 @@
-# Kurdstan
-Hamajor
